@@ -1,1 +1,1 @@
-# St-John-s-School
+# Little Wonders Public School
